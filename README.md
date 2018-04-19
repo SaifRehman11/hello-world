@@ -7,3 +7,4 @@ I also completed my Bachelors in Business Administration; Finance and Accounting
 
 Currently working as a Data Scientist at The Aerospace Corporation.
 
+Feel free to contact me through email at surehman11@gmail.com and check out my LinkedIn at: https://www.linkedin.com/in/saifrehman11/
